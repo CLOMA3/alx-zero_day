@@ -1,1 +1,1 @@
-we shall finish strong
+We are stronger togother
